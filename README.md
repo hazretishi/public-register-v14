@@ -1,2 +1,3 @@
-# public-register-v14
-Yakında.
+# 🎗️ Yapım aşamasında.
+
+- Star atmayı unutmayın! :D
