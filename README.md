@@ -2,4 +2,4 @@
 
 - Star atmayı unutmayın! :D
 
-![İltifat](https://prnt.sc/36Dls3Eyn5tN)
+![İltifat](https://img001.prntscr.com/file/img001/l5mRiC-fRbOWbh-2U8Qwbg.png)
