@@ -2,10 +2,10 @@
 
 - Star atmayı unutmayın! :D
 
-## İltifat sistemi
+## ❤️ İltifat sistemi
 
 ![İltifat](https://img001.prntscr.com/file/img001/l5mRiC-fRbOWbh-2U8Qwbg.png)
 
-## Aylık üye sistemi
+## 📆 Aylık üye sistemi
 
 ![Aylik](https://img001.prntscr.com/file/img001/xnG6IvmWQoiYpSIrDofSuw.png)
